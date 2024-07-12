@@ -1,0 +1,2 @@
+# yescoinputih
+Yescoin Putih @realyescoinbot
