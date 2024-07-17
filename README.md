@@ -6,3 +6,5 @@ ingin mendaptkan script lebih cepat join komunitas kami di discord
 
 want to get script faster join our community on discord
 [JOIN DISCORD](https://discord.gg/N9caefVJ7F)
+
+![image](https://github.com/user-attachments/assets/81e22dd2-2058-4ea0-b37e-def8b8bb1ede)
